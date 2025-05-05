@@ -1,0 +1,1 @@
+IE reicever amplifier circuit
